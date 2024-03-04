@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AbdirisakShire
+- 👀 I’m interested in GIS technologies
+- 🌱 I’m currently working in GIS field
+- 💞️ I’m looking to improve my job skills
+- 📫 you can reach to me through this blog//: https://github.com/AbdirisakShire
